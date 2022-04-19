@@ -1,5 +1,5 @@
 ![image](https://cdn.jsdelivr.net/gh/jwfoxdh/dizhi/logo-s.png)
-# 九尾狐最新地址发布 
+# 九尾狐最新地址
 ## ‼️长按复制到浏览器里面访问网址‼️
 ## 🔥【地址1】：https://jwh1.xyz
 ## 🔥【地址2】：https://jwh2.xyz
